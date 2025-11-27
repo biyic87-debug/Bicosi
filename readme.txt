@@ -1,1 +1,1 @@
-Je m'appelle BICOSI
+Je m'appelle BICO
